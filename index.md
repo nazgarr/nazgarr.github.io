@@ -2,7 +2,6 @@
 ## Direct Response Copywriter.
   
   
-  
 ### 3/11/21 First Case Study: Democrats.org
 #### Issued March 10, 2021
 
