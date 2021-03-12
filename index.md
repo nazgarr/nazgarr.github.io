@@ -1,9 +1,8 @@
 ## Yasir Soulong
 ## Direct Response Copywriter.
-
-<br><br/>
-<br><br/>
-
+  
+  
+  
 ### 3/11/21 First Case Study: Democrats.org
 #### Issued March 10, 2021
 
