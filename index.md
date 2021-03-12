@@ -4,6 +4,7 @@
 
 
 ### 3/11/21 First Case Study: Democrats.org
+#### issued March 10, 2021
 
 Though not a political person myself, I know that the Democratic party is a multi-billion dollar
 campaign machine, so I thought I would test my chops by identifying techniques 
